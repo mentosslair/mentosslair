@@ -25,7 +25,7 @@ $${{\color{#FF0000}\Large{\textsf{get comforted infront of mii.   \}}}}$$
 $${{\color{#FF0000}\Large{\textsf{>>Im undiagnosed.. with anything.. though i suspect a personality disorder..   \}}}}$$
 $${{\color{#FF0000}\Large{\textsf{>>Corrupted Mii/ Austin Sanders Canon Husband   \}}}}$$
 $${{\color{#FF0000}\Large{\textsf{>>I'm a Nonsharing/Voidsharing yume with Corrupted Mii / Austin sanders from Wii Deleted  \}}}}$$
-You.  \}}}}$$
+$${{\color{#FF0000}\Large{\textsf{You.  \}}}}$$
 $${{\color{#FF0000}\Large{\textsf{>>I have a Mii/Wii Typing quirk.  \}}}}$$
 $${{\color{#FF0000}\Large{\textsf{>>I have a huge cudcomf towards getting cuddled and people letting mii hide behind them (c+h+k)  \}}}}$$
 $${{\color{#FF0000}\Large{\textsf{>>I struggle to express my emotions alot except sadness, anger or happiness..  \}}}}$$
