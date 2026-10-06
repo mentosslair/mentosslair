@@ -18,7 +18,7 @@ $${{\color{#FF0000}\Large{\textsf{cross them unintentionally...   \}}}}$$
 $${{\color{#FF0000}\Large{\textsf{>>I'm very rude at first if i dont know you, but dont take this to heart because ill warm up if i like ya-   \}}}}$$
 $${{\color{#FF0000}\Large{\textsf{>>When im with my oomfs ill tell you to go away, so its better to whisper mii instead.   \}}}}$$
 $${{\color{#FF0000}\Large{\textsf{>>Im very attention/affection starved so.. because i barely got any compliments i dont like when others  \}}}}$$
-$${{\color{#FF0000}\Large{\textsf{get comforted infront of mii.   \}}}}$$
+$${{\color{#FF0000}\Large{\textsf{get complimented or seem happier with sum1 else infront of mii.   \}}}}$$
 
 <img width="100%" alt="hvd- blinkie" src="https://github.com/user-attachments/assets/7c09b959-8378-4930-b8eb-579439a4d6c9" />
 
