@@ -34,8 +34,6 @@ $${{\color{#FF0000}\Large{\textsf{>>DO NOT expect mii to comfort you well since 
 $${{\color{#FF0000}\Large{\textsf{i cant comf  \}}}}$$
 $${{\color{#FF0000}\Large{\textsf{>>mii birthday is may the 15th :P  \}}}}$$
 $${{\color{#FF0000}\Large{\textsf{>>i make kandi and.. i put puzzles.. draw tradionally AND digitally..  \}}}}$$
-$${{\color{#FF0000}\Large{\textsf{>>i love mii online family<3 (My son, My younger brother, My twin brother,  \}}}}$$
-$${{\color{#FF0000}\Large{\textsf{MAMA!!)  \}}}}$$
 
 <img width="100%" alt="hvd- blinkie" src="https://github.com/user-attachments/assets/7c09b959-8378-4930-b8eb-579439a4d6c9" />
 
